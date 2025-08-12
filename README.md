@@ -18,6 +18,24 @@ Professional one-on-one video chat application with advanced matching algorithms
 ![Live Video Chat Interface](./images/live_video_chat.jpg)
 *Complete video dating platform with smart matching and premium features*
 
+---
+
+## 🔥 **READY TO START YOUR VIDEO DATING BUSINESS?** 🔥
+
+<div align="center">
+
+### 💬 **CONTACT US NOW FOR INSTANT ACCESS** 💬
+
+| 📱 **WhatsApp** | 📧 **Email** | 📱 **Telegram** |
+|:---:|:---:|:---:|
+| [**🚀 CHAT NOW**](https://wa.me/8615715385900?text=I%20saw%20your%20Live%20Video%20Chat%20product%20on%20GitHub%20and%20would%20like%20to%20learn%20more%20about%20it) | **weipeng201707@gmail.com** | **@chaoxiaokalami** |
+
+### 🎯 **GET COMPLETE SOURCE CODE + COMMERCIAL LICENSE** 🎯
+
+</div>
+
+---
+
 ## ✨ Core Features
 
 ### Video Chat & Communication
@@ -169,19 +187,77 @@ Professional one-on-one video chat application with advanced matching algorithms
 - Premium conversion rates: 5-15%
 - Monthly active user potential: Unlimited scalability
 
-## 📞 Contact & Purchase
+---
 
-Ready to launch your video dating platform? Contact us for:
+# 🚀💰 **CONTACT & PURCHASE - START EARNING TODAY!** 💰🚀
 
-- **Complete Source Code** - Full package with commercial license
-- **Custom Development** - Tailored features and modifications
-- **Technical Support** - Expert setup and deployment assistance
-- **Business Consultation** - Market strategy and monetization advice
+<div align="center">
 
-### Get Started Today
-- 📧 **Email**: [weipeng201707@gmail.com]
-- 💬 **WhatsApp**: [Contact us on WhatsApp](https://wa.me/8615715385900?text=I%20saw%20your%20Live%20Video%20Chat%20product%20on%20GitHub%20and%20would%20like%20to%20learn%20more%20about%20it)
-- 📱 **Telegram**: [@chaoxiaokalami]
+## 🔥 **LAUNCH YOUR MILLION-DOLLAR VIDEO DATING PLATFORM** 🔥
+
+### 💎 **What You Get When You Contact Us** 💎
+
+</div>
+
+| 🎯 **Package** | 💼 **What's Included** | 🚀 **Value** |
+|:---:|:---:|:---:|
+| **🏆 Complete Source Code** | Full iOS + Android + Backend + Admin Panel | **$10,000+ Value** |
+| **⚡ Custom Development** | Tailored features and brand customization | **$5,000+ Value** |
+| **🛠️ Technical Support** | Expert setup, deployment & troubleshooting | **$2,000+ Value** |
+| **📈 Business Consultation** | Market strategy & monetization optimization | **$3,000+ Value** |
+
+<div align="center">
+
+---
+
+## 📱💬 **CONTACT US NOW - DON'T MISS OUT!** 💬📱
+
+### 🔥 **MULTIPLE WAYS TO REACH US INSTANTLY** 🔥
+
+</div>
+
+<table align="center">
+<tr>
+<td align="center" width="33%">
+
+### 📱 **WhatsApp**
+### 🚀 **FASTEST RESPONSE**
+**[💬 CHAT NOW](https://wa.me/8615715385900?text=I%20saw%20your%20Live%20Video%20Chat%20product%20on%20GitHub%20and%20would%20like%20to%20learn%20more%20about%20it)**
+*Get instant reply within minutes!*
+
+</td>
+<td align="center" width="33%">
+
+### 📧 **Email**
+### 📝 **DETAILED INQUIRIES**
+**weipeng201707@gmail.com**
+*Send us your requirements*
+*and get a custom quote!*
+
+</td>
+<td align="center" width="33%">
+
+### 📱 **Telegram**
+### ⚡ **QUICK CHAT**
+**@chaoxiaokalami**
+*Direct line to our*
+*technical team!*
+
+</td>
+</tr>
+</table>
+
+<div align="center">
+
+---
+
+### 🎯 **READY TO DOMINATE THE $8 BILLION VIDEO DATING MARKET?** 🎯
+
+### 💰 **START YOUR PROFITABLE BUSINESS TODAY!** 💰
+
+---
+
+</div>
 
 ---
 
